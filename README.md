@@ -1,0 +1,2 @@
+# -2nd-repository-elegant-two-tone-dress-
+# Design No. 4 - Chocolate &amp; Olive Elegant Dress  A classy and elegant two-tone formal dress design.  ### Design Details: - **Top / Upper Part:** Chocolate Brown - Long &amp; Flowy - **Inner Skirt:** Olive Green - **Style:** Modern, Elegant &amp; Classy - **Look:** Messy Bun, Bright &amp; Soft Makeup - **Vibe:** More Elegant than Red, Perfect for For  elegance
